@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mothicc
 - 👀 I’m interested in AI
-- 🌱 I’m currently learning how to improve and use them
+- 🌱 I’m currently learning how to improve and use AI lmao
 - 💞️ I’m looking for collaborations on AI
 - 📫 How to reach me :D
 
