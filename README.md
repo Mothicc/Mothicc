@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mothicc
+- 👋 Hi, I’m @Tamag0thchi_
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning how to improve and use AI lmao
 - 💞️ I’m looking for collaborations on AI
