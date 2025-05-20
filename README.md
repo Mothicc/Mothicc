@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning how to improve and use AI lmao
 - 💞️ I’m looking for collaborations on AI
-- 📫 How to reach me :D
+- 📫 hi howsy wadup gang
 
 <!---
 Mothicc/Mothicc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
